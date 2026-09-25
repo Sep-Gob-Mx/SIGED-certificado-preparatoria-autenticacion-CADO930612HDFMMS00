@@ -1,0 +1,2 @@
+# SIGED-certificado-preparatoria-autenticacion-CADO930612HDFMMS00
+CADO930612HDFMMS00
